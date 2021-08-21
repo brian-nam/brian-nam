@@ -5,4 +5,3 @@
 - 💬 Ask me about anything! I love a good conversation over a nice cup of coffee.
 - 📫 How to reach me: linkedin.com/in/briannam713
 - ⚡ Fun fact: I'm a huge supporter of how analytics is changing sports around the world!
--->
